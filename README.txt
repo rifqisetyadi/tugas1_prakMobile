@@ -1,0 +1,5 @@
+TUGAS 1 PRAKTIKUM MOBILE
+\\\\\\\\\\\\\\\\\\\\\\\\
+
+M RIFQI SETYADI
+123190149
